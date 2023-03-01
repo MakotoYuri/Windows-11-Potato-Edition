@@ -70,9 +70,7 @@ Screenshot:
 
 Download Link:
 
-G-Drive
-
-Mega
+(https://genotype11.blogspot.com/)
 
 
 Support me here
