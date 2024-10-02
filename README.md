@@ -68,12 +68,5 @@ Screenshot:
 ![image](https://user-images.githubusercontent.com/90126117/222154506-b643ec26-8b43-416d-9a30-09ff06d09822.png)
 
 
-Download Link:
-
-(https://genotype11.blogspot.com/)
-
-
-Support me here
-Or
-You can Donate me through:
-Ethereum : 0xd0F0F8b4C2Ef933C334c0Fde00a0bE58F0d3dD7
+Project is Closed.
+Thanks You all.
